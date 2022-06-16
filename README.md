@@ -1,1 +1,1 @@
-# CV
+# https://dzinakor.github.io/CV/CV
